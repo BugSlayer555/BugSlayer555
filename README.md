@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 3rd Year B.Tech CSE Student 📚 | Starting a 150-day journey to excel in DSA and C++💻🚀 | Join me on my coding adventure!
+🎓 3rd Year B.Tech CSE Student 📚 | Join me on my coding adventure!
 
 
 ## 🌐 Socials:
