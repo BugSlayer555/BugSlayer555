@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 3rd Year B.Tech CSE Student 📚 | Join me on my coding adventure!
+🎓 4th Year B.Tech CSE Student 📚 | Join me on my coding adventure!
 
 
 ## 🌐 Socials:
